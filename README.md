@@ -2,4 +2,4 @@
 
 
 
-these files are only for educational purpose i dont suppourt any anothrized activityes
+These files are solely for educational purposes. I do not endorse any unauthorised activities.
